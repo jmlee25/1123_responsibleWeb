@@ -1,1 +1,1 @@
-jmlee25.github.io/main/
+jmlee25.github.io
